@@ -1,6 +1,6 @@
 # Preston Woo
 
-Email: [preston.pono](mailto:preston.pono)  
+Email: [preston.pono@gmail.com](mailto:preston.pono)  
 Phone: *[(808) 726-3388]*  
 Location: *[Honolulu, HI]* 
 
